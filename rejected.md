@@ -1,0 +1,1 @@
+this joke cannot be repeated because it is not politically correct.  <Censored>
